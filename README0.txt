@@ -1,1 +1,0 @@
-http://www.glossypanther.com built using Identity by HTML5 UP.
